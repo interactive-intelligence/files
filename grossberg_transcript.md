@@ -1,6 +1,6 @@
 # Grossberg Transcript
 
-The following is the transcript from the 4/18 JC with Stephen Grossberg.
+The following is the transcript from the 4/18 JC with Stephen Grossberg. As with all transcripts, it's imperfect; blame [otter.ai](https://otter.ai/) for any inaccuracies.
 
 ```
 Chaytan Inman
